@@ -6,3 +6,4 @@ market analysis:
 ### Books:
 * https://patrickcollison.com/bookshelf
 * https://www.pollmed.com/best-emergency-medicine-books
+* https://www.cvent.com/en/blog/hospitality/7-must-read-books-hospitality-marketing-sales-directors
